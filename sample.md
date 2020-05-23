@@ -9,9 +9,6 @@ the Indian general elections[3][4] but eventually the tournament was played enti
 India's opening match at the 2019 Cricket World Cup was postponed from 2 to 5 June as the BCCI were directed to maintain a mandatory 15-day gap between the 
 conclusion of IPL and India's subsequent international fixture as per Lodha Committee's recommendation.[7]
 
-Delhi Daredevils were renamed as the Delhi Capitals, the franchise announced on 4 December 2018, and also released a new logo.[8] Chennai Super Kings were 
-the defending champions.[9]
-
 ## Results
 -----------------
 Mumbai Indians defeated the Chennai Super Kings by 1 run to win the final for their fourth title.[10] David Warner won the Orange Cap for the leading 
